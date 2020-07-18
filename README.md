@@ -1,1 +1,0 @@
-# tthe-state-of-mind
